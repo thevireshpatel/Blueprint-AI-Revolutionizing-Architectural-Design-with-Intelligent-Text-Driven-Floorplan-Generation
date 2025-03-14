@@ -1,0 +1,1 @@
+# Blueprint-AI-Revolutionizing-Architectural-Design-with-Intelligent-Text-Driven-Floorplan-Generation
